@@ -1,0 +1,2 @@
+- Hi, I’m @ketr501215, is currently Associate Professor at HungKuang University. He received his Ph. D. degree from National Changhua University of Education, Taiwan. He is interested in human resource management, human resource development and research of hospitality training programs, service quality and e-learning of hospitality industry.
+ketr501215/ketr501215 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
